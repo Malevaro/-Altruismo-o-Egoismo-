@@ -48,5 +48,14 @@ ya no me pongo rojo y tu ya no ríes
 ¿Porque no te ríes?¿Ya no es chistoso?
 Y tu me dices: no se, simplemente... no se.
 
+Ahora yo soy quien te hablo,
+no se por donde comenzar,
+pero bien sabes a donde quiero llegar,
+y con tan solo un terminamos te quiero superar.
 
+Pero ¿En que momento comenzó todo esto?
+A caso fueron los celos, las peleas sin terminar,
+las mentiras sin razón, o la culpa de este corazón
+No… esperen, ya se donde todo esto comenzó
+y fue en el momento en el que me hablaste sin razón
 
