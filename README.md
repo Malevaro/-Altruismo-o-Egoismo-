@@ -33,6 +33,10 @@ y en esto hay algo de razón
 Tu no eres perfecta, yo tampoco lo soy,
 pero tu defecto también me enamoro.
 
+Ya pasa el tiempo y ya nada es lo mismo,
+que esta pasando, que te pasa a ti, a mi, a nosotros,
+el cielo ya no es azul, pero tampoco es que sea negro
+simplemente ya no tiene color.
 
 
 
