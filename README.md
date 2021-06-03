@@ -28,5 +28,11 @@ Confundiendo el cielo con el infierno,
 el sueño en pesadilla,
 y el amor con el dolor.
 
+Dicen que nada es perfecto,
+y en esto hay algo de razón
+Tu no eres perfecta, yo tampoco lo soy,
+pero tu defecto también me enamoro.
+
+
 
 
