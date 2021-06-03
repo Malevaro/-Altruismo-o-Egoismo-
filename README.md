@@ -21,3 +21,18 @@ Hay un argumento genuinamente egoísta para ser del mundo un lugar mejor, en un 
 
 Pongamos un ejemplo de interés mundial: Curar el cáncer. Como en el mundo hay mil millones de personas con la riqueza necesaria para pagar los tratamientos… la innovación sigue esta demanda, es de esta forma que se han invertido cientos de miles de millones de dólares en investigación medica la cual ha tenido un gran efecto, aunque aun estemos lejos de curar todas las formas de cáncer, hoy en día una de cada 6 personas muere de cáncer ¡Nos podría pasar a cualquiera! Imaginemos que la demanda fuera mas mayor, y que en lugar de mil millones de personas, el tratamiento lo pudieran pagar 4000 o 7000 mil millones, imaginen lo lejos que puede llegar la medicina si multiplicáramos por 7 la inversión
 
+## :snail: Una mirada al futuro con aires del ~~_pasado_~~.
+
+Encima de todo, hay muchísimo potencial humano malgastándose ahora: El trabajo de un granjero pobre en una nación en desarrollo no nos es útil, pero si su situación económica mejorara.. sus hijos podrían ir a la universidad y desarrollar cosas que nos resulten útiles, en lugar de tener algunos centros de innovación en los países desarrollados… contaríamos con numerosos centros en todo el mundo, los resultados de la investigación de la humanidad… se multiplicarían, ¿habríamos encontrado al cura del cáncer de ser así? Quizás, con un gasto en educación multiplicado por 7 los investigadores también se multiplicarían por 7 y formarían una red de investigación global en el que las cosas podrían estar mas avanzadas, siendo de esta manera el argumento fundamental… cuantos mas quieran lo mismo que otros, mas posibilidades podemos de obtenerlo, este es el significado de vivir en un mundo de suma positiva, no se consigue mas pastel si los sitios pobres siguen siendo pobres, al contrario, se obtiene cuando mejoran, ya que contribuyen con mejoras y hacen posible crecer el pastel global.
+
+Por ejemplo, imagine que en África y en Asia hubieran miles de millones de personas que con sus propios programas espaciales, exigieran satélites, bases lunares y ciudades hasta en marte. ¿Le gusta estar vivo? Miles de millones de personas mas invirtiendo mas en investigación medica podrían salvarle la vida literalmente, con todo esto, le conviene que todas las personas del planeta mejoren, cuanto mas antes lleguemos a esta versión del mundo, mas le beneficiara personalmente, no importan sus motivos, esforzarse en que el mundo sea un lugar mejor es algo muy bueno, tanto para los demás como para uno mismo.
+
+
+
+
+
+
+
+
+
+
