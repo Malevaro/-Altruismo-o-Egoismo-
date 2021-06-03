@@ -27,7 +27,11 @@ Encima de todo, hay muchísimo potencial humano malgastándose ahora: El trabajo
 
 Por ejemplo, imagine que en África y en Asia hubieran miles de millones de personas que con sus propios programas espaciales, exigieran satélites, bases lunares y ciudades hasta en marte. ¿Le gusta estar vivo? Miles de millones de personas mas invirtiendo mas en investigación medica podrían salvarle la vida literalmente, con todo esto, le conviene que todas las personas del planeta mejoren, cuanto mas antes lleguemos a esta versión del mundo, mas le beneficiara personalmente, no importan sus motivos, esforzarse en que el mundo sea un lugar mejor es algo muy bueno, tanto para los demás como para uno mismo.
 
+## :bulb: Mas alla de una mirada antropologica.
 
+Con esto, podemos ver un trasfondo últimamente egoísta, en la que se puede apreciar dos pensamientos filosóficos y científicos para este caso: La Epicurea y la Biológica; en la primera se nos dice que el placer constituye un bien supremo y la meta mas importante para esta caso es la vida tranquila, llena siempre de satisfacción y de gozo… la cual se llega mediante el enlace del segundo pensamiento, el biológico: En la obra “el gen egoísta” de Richard Dawkins publicado en 1976 , considera que el “altruismo” (El cual en este caso se usa para llegar a un placer individual) es mas que solo un gen que tiene en cuanta el bien del individuo y no el de la especie, es decir, lo que se entiende por altruismo es en este caso la conducta que tiene un organismo cuando se comporta de tal manera que contribuya a aumentar su propio bienestar de otro ser semejante a expensas de su propio bienestar; lo cual lo consideraríamos como un altruismo individual aparente, lo que concluye en ultimas, que el egoísmo es de naturaleza netamente genética mientras que el altruismo es netamente un constructo social para disfrazar o amudar dicho gen
+
+En conclusión ultima todo el presente se puede resumir en una frase “Si quiero mi vida perfecta, debo procurar que la de los demás también lo sea.”
 
 
 
