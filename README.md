@@ -38,5 +38,15 @@ que esta pasando, que te pasa a ti, a mi, a nosotros,
 el cielo ya no es azul, pero tampoco es que sea negro
 simplemente ya no tiene color.
 
+Tus ojos, tu piel, tus rizos
+ya no tienen esa viveza en el color,
+Tus mejillas tienen un toperol.
+y tus labios ya suenan, saben y expresan dolor.
+
+Me miras y te miro,
+ya no me pongo rojo y tu ya no ríes
+¿Porque no te ríes?¿Ya no es chistoso?
+Y tu me dices: no se, simplemente... no se.
+
 
 
