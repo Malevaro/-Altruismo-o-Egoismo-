@@ -59,3 +59,9 @@ las mentiras sin razón, o la culpa de este corazón
 No… esperen, ya se donde todo esto comenzó
 y fue en el momento en el que me hablaste sin razón
 
+Ya pasa el tiempo sin ti, tres, cuatros, seis meses,
+ahora te miro, feliz y radiante,
+me alegro por ti y me alegro por mi
+por lo que fue y por lo que no pudo ser a la vez
+lamentable todo lo bueno siempre tiene un fin, 
+aunque no garantizo que vaya a olvidarme de ti
